@@ -1,0 +1,15 @@
+---
+ID: 4012
+post_title: Une semaine à 3
+author: marion
+post_excerpt: ""
+layout: post
+permalink: https://famille.mazaleyrat.com/?p=4012
+published: true
+post_date: 2015-10-26 12:33:48
+---
+[caption id="attachment_4021" align="alignleft" width="225"]<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-wp-1445963049429.jpg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-wp-1445963049429-225x300.jpg" alt="C&#039;est trop bon les crèpes au caramel beurre salé" width="225" height="300" class="size-medium wp-image-4021" /></a> C'est trop bon les crèpes au caramel beurre salé[/caption]Anaëlle est partie en colo mardi, donc depuis nous sommes seulement tous les 3 à la maison depuis. Voilà quand même un petit aperçu de notre semaine :
+Lundi, une copine d'enfance, qui vit à Angers, est venue dîner avec son mari et ses deux enfants. Anaëlle a bien joué avec Sowen, et Naël, un peu plus grand a été assez mignon pour s'occuper de Lucien après le dîner. Une soirée sympathique, qui ne nous a pas permis de finaliser les bagages d'Anaëlle avec mes derniers achats que j'ai fait à Décathlon. Nous faisons donc cela mardi matin, avant de boucler la valise et de partir au travail toutes les deux. Anaëlle est en effet restée quelques temps avec moi, avant que je l'amène à la gare pour aller à la colo à 11h30.<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-download_20151027_123207.jpg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-download_20151027_123207-300x225.jpg" alt="wpid-download_20151027_123207.jpg" width="300" height="225" class="alignright size-medium wp-image-4011" /></a>
+Mercredi Sylvain a été voir le foot avec les copains. C'était une des premières fois, je ne résiste pas à mettre la photo :-)
+Jeudi et vendredi nous avons fini la semaine tranquillement. Lucien réclame un peu sa grande soeur mais il profite un peu de son statut de fils unique pour nous faire de gros câlins et faire du charme. Samedi nous avons eu la visite de copains mais Lucien n'était pas très sociable. Pourtant il y avait deux petits de son âge. Cependant, il commence à vraiment bien jouer, notamment aux legos, et aux playmobil. Sylvain lui a notamment offert jeudi une moto rouge avec laquelle il dort. Le matin, je dois souvent remettre le casque et le motard sur la selle avant d'avoir mon bisou!
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-img_20151025_125239-01.jpeg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-img_20151025_125239-01-300x300.jpeg" alt="wpid-img_20151025_125239-01.jpeg" width="300" height="300" class="alignleft size-medium wp-image-4020" /></a>Enfin dimanche, nous avons été voir l'exposition d'art urbain où expose Louis, à côté de Bansky et Miss Tic entre autres. C'est dans le cadre de la FIAC. Lucien a été très attentif, il a beaucoup apprécié ces jolies couleurs.

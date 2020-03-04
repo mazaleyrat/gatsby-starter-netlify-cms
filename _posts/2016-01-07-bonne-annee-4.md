@@ -1,0 +1,25 @@
+---
+ID: 4149
+post_title: Bonne année
+author: marion
+post_excerpt: ""
+layout: post
+permalink: https://famille.mazaleyrat.com/?p=4149
+published: true
+post_date: 2016-01-07 16:56:35
+---
+<p style="text-align: center;">Nous vous souhaitons tous les 4 une année riche
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452182319077.jpg"><img class="aligncenter size-medium wp-image-4151" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452182319077-300x265.jpg" alt="wpid-wp-1452182319077.jpg" width="300" height="265" /></a>De découvertes
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452251136272.jpg"><img class="aligncenter size-medium wp-image-4166" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452251136272-209x300.jpg" alt="wpid-wp-1452251136272.jpg" width="209" height="300" /></a>D'aventures
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452250139218-e1452251352595.jpg"><img class="aligncenter size-medium wp-image-4162" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452250139218-e1452251352595-292x300.jpg" alt="wpid-wp-1452250139218.jpg" width="292" height="300" /></a>De défis
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151225_114315.jpg"><img class="aligncenter size-medium wp-image-4170" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151225_114315-225x300.jpg" alt="wpid-img_20151225_114315.jpg" width="225" height="300" /></a>De joies partagées
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452251131766.jpg"><img class="aligncenter size-medium wp-image-4165" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452251131766-235x300.jpg" alt="wpid-wp-1452251131766.jpg" width="235" height="300" /></a>De gourmandises</p>
+<p style="text-align: center;"><a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452289508190.jpg"><img class="aligncenter size-medium wp-image-4178" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452289508190-225x300.jpg" alt="wpid-wp-1452289508190.jpg" width="225" height="300" /></a></p>
+<p style="text-align: center;">De fêtes</p>
+<p style="text-align: center;"><a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452289531084.jpg"><img class="aligncenter size-medium wp-image-4179" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452289531084-300x225.jpg" alt="wpid-wp-1452289531084.jpg" width="300" height="225" /></a>De rires</p>
+<p style="text-align: center;"><a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452289540682.jpg"><img class="aligncenter size-medium wp-image-4180" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452289540682-293x300.jpg" alt="wpid-wp-1452289540682.jpg" width="293" height="300" /></a>De complicités
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452251127072.jpg"><img class="aligncenter size-medium wp-image-4164" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452251127072-296x300.jpg" alt="wpid-wp-1452251127072.jpg" width="296" height="300" /></a>D'initiatives
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151205_221822.jpg"><img class="aligncenter size-medium wp-image-4172" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151205_221822-225x300.jpg" alt="wpid-img_20151205_221822.jpg" width="225" height="300" /></a>De bonheur
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452187781079.jpg"><img class="aligncenter size-medium wp-image-4154" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-wp-1452187781079-300x236.jpg" alt="wpid-wp-1452187781079.jpg" width="300" height="236" /></a>D'amour
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151108_155101.jpg"><img class="aligncenter size-medium wp-image-4181" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151108_155101-300x225.jpg" alt="wpid-img_20151108_155101.jpg" width="300" height="225" /></a><strong>Bref... bonne année 2016</strong>
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151225_131955.jpg"><img class="aligncenter size-medium wp-image-4174" src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2016/01/wpid-img_20151225_131955-225x300.jpg" alt="wpid-img_20151225_131955.jpg" width="225" height="300" /></a></p>

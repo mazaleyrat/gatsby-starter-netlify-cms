@@ -1,0 +1,13 @@
+---
+ID: 3850
+post_title: Chez Pépé et Mémé
+author: marion
+post_excerpt: ""
+layout: post
+permalink: https://famille.mazaleyrat.com/?p=3850
+published: true
+post_date: 2015-08-18 20:09:21
+---
+[caption id="attachment_3854" align="alignleft" width="289"]<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/08/PSX_20150818_201845.jpg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/08/PSX_20150818_201845-289x300.jpg" alt="Saurez vous retrouver le pépé qui se cache dans cette photo ?" width="289" height="300" class="size-medium wp-image-3854" /></a> Saurez vous retrouver le pépé qui se cache dans cette photo ?[/caption]Les deux premières semaines d'août, nous n'étions pas en vacances cette année. Pour des raisons logistiques, nous étions contents de ne pas avoir à déplacer les enfants pendant les week-end de bouchons, et du coup nous avons gentillement sollicité Ghislaine et Alain pour 2 semaines avec les 2 loustics! Un peu sportif mais les grands-parents ont <strike>inconsciemment</strike> accepté :-). Nous avions jamais laissé les enfants si longtemps. Anaëlle part parfois 1 semaine mais pas plus, quant à Lucien c'était la toute première fois qu'il partait plus d'une nuit (alors en fait si je réfléchis, en mars NOUS étions partis 4 jours sans eux donc bon j'exagère un peu :)) : bref c'était long aussi pour <strike>maman </strike>nous. Heureusement, Anaëlle a eu la bonne idée de naître au mois d'août. Et comme on se voyait mal ne pas aller fêter son anniversaire avec elle, on a passé le week-end du milieu avec eux.
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/08/20150818_202037.jpg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/08/20150818_202037-255x300.jpg" alt="20150818_202037" width="255" height="300" class="alignright size-medium wp-image-3855" /></a>Tout s'est très bien passé. Les petits ont été charmants, Pépé et Mémé ont passé de chouettes vacances (bon ok, plutôt l'inverse). Les enfants ont adoré la piscine, le bac à sable, la balançoire et le toboggan achetés pour l'occasion (si si tout ça). Anaëlle était au 7e ciel de fêter son anniversaire avec les cousins, chez Tata Monique et tonton Jean-Pierre en Corrèze (c'était son moment préféré des vacances et il y en a eu 100 autres supers tops). Lucien a profité des câlins de Pépé et Mémé et bien embêté Bout d'Chou (qui s'est bien rattrapé sur la nourriture qui tombait de la chaise haute). 
+Bref, une bonne première. On espère qu'il y en aura plein plein d'autres!

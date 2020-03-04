@@ -1,0 +1,20 @@
+---
+ID: 3957
+post_title: Notre semaine en bref
+author: marion
+post_excerpt: ""
+layout: post
+permalink: https://famille.mazaleyrat.com/?p=3957
+published: true
+post_date: 2015-10-05 15:42:11
+---
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-wp-1444054546251.jpg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-wp-1444054546251-250x300.jpg" alt="wpid-wp-1444054546251.jpg" width="250" height="300" class="alignleft size-medium wp-image-3959" /></a>Cette semaine, j'ai été pas mal occupée hors de la maison. Mais heureusement, je sais que je peux compter sur mon super mari pour gérer le quotidien quand j'ai une invitation de dernière minute pour une expo le soir ou un apéro avec les collègues ;-) Voilà quand même quelques news de la semaine :
+Lundi j'ai accompagné Anaëlle au cours de sport. Il y a 4 fois dans l'année des cours AVEC les parents (qui doivent donc aussi courir partout et lancer des javelots en mousse). C'était rigolo et ça nous a bien plu.
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-wp-1444054552073.jpg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-wp-1444054552073-300x261.jpg" alt="wpid-wp-1444054552073.jpg" width="300" height="261" class="alignright size-medium wp-image-3960" /></a>Mardi c'était la course comme toujours. On file au bain et on s'amuse bien en attendant le repas.
+Mercredi, j'ai eu une invitation pour aller à une expo organisée par Elle sur les Champs-Élysées (gratuite et ouverte à tous donc). J'ai aussi eu une entrée pour l'expo au Grand Palais de peintures d'Élisabeth Vigée Lebrun et un petit cocktail avant ça. Comme cette invitation m'a été envoyée la veille, j'ai eu un peu de mal à trouver quelqu'un dispo pour m'accompagner mais finalement une copine a pu se libérer et c'était bien sympa. 
+Pendant ce temps, enfin plus tôt dans la journée, Anaëlle a commencé son programme culturel avec Mamie. Elle a été à la grande galerie de l'évolution ce qui lui a bien plu.
+Jeudi, j'avais encore une petite sortie (apéro au boulot) et je suis rentrée un peu tard. Mais les petits loups étaient encore debout et plutôt en forme. Ils ont parfois un peu de mal à s'endormir (je ne dis pas ça trop fort, ils ne font jamais d'histoire trop longtemps et dorment très souvent avant 20h30)...et le matin ça peut être un peu dur.
+Vendredi c'était la photo de classe. On vous montre le résultat bientôt. Et le soir Max est venu dîner avec Julie. Anaëlle était bien contente de le voir, et comme d'habitude, pas moyen de coucher Lucien, pourtant crevé, avant. Il faut qu'il se couche en même temps que sa soeur :-)
+Samedi c'était notre dernière séance de bébé nageur. On verra&nbsp; si on continue un peu plus tard, mais pour le moment nos week-end sont un peu chargés donc on va essayer d'aller à la piscine hors du créneau bébé nageur. 
+<a href="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-img_20151004_135902.jpg"><img src="http://famille.mazaleyrat.com/wordpress/wp-content/uploads/2015/10/wpid-img_20151004_135902-225x300.jpg" alt="wpid-img_20151004_135902.jpg" width="225" height="300" class="alignleft size-medium wp-image-3961" /></a>Dimanche nous avons été à Giverny avec des copains. C'était bien sympa de se voir d'abord et de profiter des derniers rayons du soleil dans un endroit si agréable. Toutes nos photos sont <a href="https://goo.gl/photos/V73NucveLAau3vuQ9">là</a> et <a href="https://goo.gl/photos/HNt938RgsEyMbD636">là</a>. Alors qu'on ne se voyait pas beaucoup en famille (c'est une copine que je vois toute seule lors de mes "soirées filles") on s'est pas mal vu tous ensemble dernièrement entre son mariage, celui de Nadège, cette sortie et dans 15 jours un barbecue (oui oui... On espère que le beau temps va rester un peu ;-) ). Ça tombe bien, les filles s'amusent bien ensemble.
+Et voilà, c'est déjà reparti pour un tour! Je vous ai mis quelques vidéos de Lucien pour garder le sourire !

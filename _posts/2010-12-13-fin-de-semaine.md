@@ -1,0 +1,12 @@
+---
+ID: 508
+post_title: Fin de semaine
+author: marion
+post_excerpt: ""
+layout: post
+permalink: https://famille.mazaleyrat.com/?p=508
+published: true
+post_date: 2010-12-13 07:22:39
+---
+<a href="http://famille.mazaleyrat.com/wp-content/uploads/2010/12/wpid-IMAG0112-1.jpg"><img src="http://famille.mazaleyrat.com/wp-content/uploads/2010/12/wpid-IMAG0112-1-246x300.jpg" alt="" title="wpid-IMAG0112-1.jpg" width="246" height="300" class="alignleft size-medium wp-image-507" /></a>Nous avons passé le week-end sur l'île de Galiano. Vancouver est en fait protégé du Pacifique par un archipel. Galiano est la plus proche de Vancouver, à environ 45 min de ferry. Nous y avons été avec Marie-Paule et Annabelle. Les garçons sont restés à Vancouver car Paul avait une répétition de théâtre. Je pense que c'était avec un club de l'ecole. Ici les activités extra scolaires sont prises très au sérieux. Il faut aller à toutes les répétitions ou tous les entraînements de sport. Paul doit faire un sport pour l'école. Comme il a potentiellement théâtre l'après midi (les répétitions se feront de plus en plus frequentes avant la représentation fin janvier), il a dû choisir fitness... à 7h du matin 2 fois par semaine! Ici le système d'éducation me paraît idéal; on peut choisir ses matières (avec quelques items obligatoires, et dans la limite du raisonnable entre 6 et 8 cours). Chaque matière est enseignée à part égale soit 80 minutes tous les 2 jours (l'emploi du temps est donc sur 2 semaines de 5 journées qui commencent à 8h20 et se terminent vers 3h après 4 cours de 80 minutes, une réunion de classe et une pause déjeuner). <br>
+Les enfants ici sont dans des écoles privées. Elles ne sont pas mixtes, et l'uniforme est obligatoire. À ce sujet, nous avons bien ris le jour où Annabelle nous a expliqué la règle qui prévalait pour la longueur de la jupe de l'uniforme! Les écoles publiques sont mixtes et sans uniforme, ce qui fait un gros contraste. Beaucoup de matières sont enseignées sur plusieurs niveaux. Par exemple on peut être en maths "enrichi " où même "avancé" (en gros une classe avant, et la possibilité de passer la première année d'université des le lycée également). Il n'y a donc pas de classe comme en France car les groupes changent selon les matières choisies, le niveau, et le brassage voulu par l'école. Je trouve ça assez bien comme système, entièrement personnalisé.</p>
